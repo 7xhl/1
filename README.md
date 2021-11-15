@@ -10,9 +10,10 @@
 
 备用观众版下载地址如下<br>
 thoy.xyz<br>
+wi7m.xyz<br>
+5r4s.xyz<br>
+kyr4.xyz<br>
 
-备用主播版下载地址如下<br>
-fo48.xyz<br>
 
 # 小狐狸回家页简介
 专人不断更新，提供最新小狐狸下载地址<br>
